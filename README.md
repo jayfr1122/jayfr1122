@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **developing my skills**
 
-- 🌱 I’m currently learning **at LEARN Academy**
+- 🌱 Graduated **from LEARN Academy**
 
 - 💬 Ask me about **building computers**
 
